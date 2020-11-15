@@ -4,5 +4,4 @@ says what it means
 
 G´day
 
-
-The oranges are raining
+Hej, jag bor i Sverige just nu men jag kommer från Australia.
